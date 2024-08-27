@@ -12,5 +12,5 @@ ys9621492@gmail.com
 
 @yass.santzx
 
-![](https://tenor.com/n7u4Es16GRW.gif)
+![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
 
